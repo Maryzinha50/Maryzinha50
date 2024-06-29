@@ -1,16 +1,14 @@
-## Hi there 👋
+*Seja bem-vindo(a)*(ﾉ◕ヮ◕)ﾉ*:･ﾟ✧
 
-<!--
-**Maryzinha50/Maryzinha50** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- Meu nome é Marianne como apilido Mary
 
-Here are some ideas to get you started:
+- Estou etudando no Alura
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Eu uso este espaço para organização e compartilhamento de atividades e projetoヾ(•ω•`)o
+
+# Você pode entrar em contato comigo em 📧
+
+0000109928529xsp@al.educacao.sp.gov.br
+
+
+![](https://tenor.com/pt-BR/view/dog-dog-with-butterfly-on-nose-dog-with-butterfly-butterfly-gif-13282441872748349107)
